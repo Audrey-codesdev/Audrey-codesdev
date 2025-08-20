@@ -1,4 +1,4 @@
-# Hi there, I’m Audrey! 👋  
+# Hi there
 🎨 Aspiring designer & developer  
 
   
